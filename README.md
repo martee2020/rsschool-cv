@@ -1,1 +1,1 @@
-# rsschool-cv
+https://martee2020.github.io/rsschool-cv/cv
